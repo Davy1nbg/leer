@@ -1,1 +1,1 @@
-# SocialJusticeWarrior
+# Vorbei mit CO²
